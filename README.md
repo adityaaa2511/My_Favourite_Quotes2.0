@@ -6,3 +6,4 @@
 5) I know how strong I am now, I'm strong because of you, and dad and us!!!![Miles to Rose]
 6) I never found the right band to join ; So I [will] started my own; With a few old FRIENDS😎!!!!
 7) Everything that you want in this life is on the other side of **WORST** first. Its almost crucial to accept that things will almost always get worse before they get better.[Stanford GSB Prof]
+8) Never morn the past young warrior.[Optimus Prime].
