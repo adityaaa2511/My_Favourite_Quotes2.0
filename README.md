@@ -4,4 +4,5 @@
 3) So here's the deal; Wherever you go from here you have to promise to take care of that little boy for me, Make sure he never forgets where he came from. And he never doubts that he is loved.And he never lets anyone at those big,fancy places he is going to be in tell him that he doesnt belong there.[Rose to Miles]
 4) You were right, You were right about everything MOM; I saw all these amazing places and met all these amazing people, but they didnt want me.I kept thinking about what you said and I LET 'EM HAVE IT MOM,I BEAT 'EM ALL!!!!!
 5) I know how strong I am now, I'm strong because of you, and dad and us!!!![Miles to Rose]
-6) I never found the right band to join ; So I [will] started my own; With a few old FRIENDS😎!!!! 
+6) I never found the right band to join ; So I [will] started my own; With a few old FRIENDS😎!!!!
+7) Everything that you want in this life is on the other side of **WORST** first. Its almost crucial to accept that things will almost always get worse before they get better.[Stanford GSB Prof]
