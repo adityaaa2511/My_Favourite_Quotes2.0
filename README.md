@@ -9,3 +9,4 @@
 8) Never morn the past young warrior.[Optimus Prime].
 9) If you are at home and you are sitting on your couch and you are watching this right now, all I have to say is this is hard work. I've worked hard for a long time and its not about winning, its about not giving up.If you have a dream, fight for it. Its not about how many times you get rejected for how many times you fall down, its about how many times you stand up.[Lady Gaga].
 10) Some of the most successful people in the world are the ones who have the most failures. JK Rowlings first Harry Potter book was rejected 12 times before it was finally published. Michael Jordan was cut from his high-school basketball team. He lost hundreds of games(most notably against the Detroit Pistons) and missed thousands of shots during his carrer, but he once said I have failed over and over again and that is why I succeed.[Barack Obama/Mark Zuckerberg].
+11) I was ignorant and foolish, The world,irrational and insane.
